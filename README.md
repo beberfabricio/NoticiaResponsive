@@ -1,0 +1,1 @@
+Noticia utilizada: https://www.telam.com.ar/notas/202205/592220-gas-prevencion-inhalacion-monoxido-carbono.html
